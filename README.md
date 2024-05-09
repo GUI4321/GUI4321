@@ -10,9 +10,9 @@ Meu Nome é Guilherme Marchi
 
 ### Você pode entrar em contato comigo 📫
 
-paludettomarcelo@gmail.com
+00001107106436sp@al.educacao.sp.gov.br
 
-![descrição do GIF](link GIF do Tenor)
+
 
 
   
